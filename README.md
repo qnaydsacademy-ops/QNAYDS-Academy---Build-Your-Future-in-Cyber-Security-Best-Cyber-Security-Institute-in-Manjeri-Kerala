@@ -1,2 +1,18 @@
-# QNAYDS-Academy---Build-Your-Future-in-Cyber-Security-Best-Cyber-Security-Institute-in-Manjeri-Kerala
-Build Your Future in Cyber Security with QNAYDS Academy!Are you looking to start a career in Cyber Security? QNAYDS Academy is Kerala's leading cyber security training institute located in Manjeri.
+# QNAYDS Academy - Build Your Future in Cyber Security
+
+![QNAYDS Academy - Best Cyber Security Institute in Kerala](paste_your_image_link_here)
+
+**QNAYDS ACADEMY - BUILD YOUR FUTURE IN CYBER SECURITY**
+
+We provide:
+✅ Practical Training
+✅ Ethical Hacking
+✅ Cyber Security Skills
+
+📍 Location: Manjeri, Kerala
+🏆 Best Cyber Security Institute in Kerala
+
+🔗 Learn more: https://qnayds.com
+📞 Contact: +91 90748 71204
+
+#CyberSecurity #EthicalHacking #QNAYDS #Kerala #Manjeri #CyberSecurityTraining
